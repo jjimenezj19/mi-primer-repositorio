@@ -9,6 +9,8 @@
 
 ![Yamaha R9](https://www.bcmotosbarcelona.com/wp-content/uploads/2024/10/R9-BC.jpg)
 
+![Armadura Biker](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcROHUwZLgE3zCHi6_pj0jOhLb5j7_F2QCZAYQ&s)
+
 **Uso de Citas**
 > La Mejor Marca Yamaha
 
